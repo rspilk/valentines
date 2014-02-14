@@ -10,4 +10,4 @@ By chance, or nature's changing course, untrimmed;
 But thy eternal summer shall not fade,
 ```
 
-CONTENT THANKS TO: http://www.poets.org/viewmedia.php/prmMID/15555#sthash.u8YRoyQz.dpuf
+CONTENT THANKS TO: [Poets.org](http://www.poets.org/viewmedia.php/prmMID/15555#sthash.u8YRoyQz.dpuf)
